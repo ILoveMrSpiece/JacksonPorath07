@@ -1,13 +1,13 @@
-# Jackson L Porath
+# **Jackson L Porath**
 
  # Contact Information!
-<p align='center'> 
 
-   <a href="mailto:jacksonlporath26@gbstu.org/"> Email Adress
+<a href="mailto:jacksonlporath26@gbstu.org/"> Email Adress
+</p>
+
 <a href="https://www.instagram.com/jacksonp_017/"> Instagram Account
 
-
-
+14258 North Blah Blah Road
 
    </a>
 

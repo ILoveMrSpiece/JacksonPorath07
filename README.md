@@ -2,7 +2,7 @@
 
  # Contact Information!
 
-<a href="mailto:jacksonlporath26@gbstu.org/"> Email Adress
+<a href="mailto:jacksonlporath26@gbstu.org/"> Email Address
 </p>
 
 <a href="https://www.instagram.com/jacksonp_017/"> Instagram Account
